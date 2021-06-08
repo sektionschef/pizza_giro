@@ -1,4 +1,6 @@
-# #PizzaGiro - Auftakt in Bozen | 1\. Juni 2014
+# PizzaGiro
+
+## Auftakt in Bozen | 1\. Juni 2014
 
 Auftakt des PizzaGiro in Bozen, Kalibrierungspizza bei nussbaumer, Pizza Margherita mit Prosciutto Cotto im muflone rosa.
 
@@ -16,7 +18,7 @@ Danach wurde aus der Muflone Rosa mit Improvisationskraft eine _margharita con p
 
 ![PizzaGiro Briefing](uploads/2014/06/the_challenge.jpg) ![Nussbaumer Pizzeria](uploads/2014/06/nussbaumer_outdoor.jpg) ![Nussbaumer Pizza](uploads/2014/06/nussbaumer_pizza.jpg) ![Muflone Rosa](uploads/2014/06/muflone_rosa_outdoor.jpg) ![Pizza Muflone Rosa](uploads/2014/06/muflone_rosa_pizza.jpg)
 
-# #PizzaGiro - Bring it on | 3\. Juni 2014
+## Bring it on | 3\. Juni 2014
 
 Der PizzaGiro geht in die nächste Runde. Verona, Bologna und Florenz hinterließen einen wohlgefälligen Nachgeschmack auf der größten Pizzaverkostungsreise seit Marco Polo.
 
@@ -58,7 +60,7 @@ Nachdem das Rossopomodoro in Florenz sich meiner Bewertung nicht mehr stellen ko
 
 [Bewertungen](https://docs.google.com/spreadsheets/d/1nJDMmr8qeW6X0n13t-sRvPXcfXNC589JQmiwaUws5mM/edit?usp=sharing) (Schulnotenskala 1-5)
 
-# #PizzaGiro - Endstazione | 12\. Juni 2014
+## Endstazione | 12\. Juni 2014
 
 Der Endbericht zum PizzaGiro: 12 Pizzen in 11 Tagen. Die perfekte Pizza war nicht darunter. Nur ein Grund um weiterzumachen.
 
