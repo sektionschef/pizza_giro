@@ -4,7 +4,9 @@
 
 Auftakt des PizzaGiro in Bozen, Kalibrierungspizza bei nussbaumer, Pizza Margherita mit Prosciutto Cotto im muflone rosa.
 
-<https://www.youtube.com/watch?v=UyABLWjjGXg> [![Auftakt Bozen](http://img.youtube.com/vi/UyABLWjjGXg/0.jpg)](http://www.youtube.com/watch?v=UyABLWjjGXg)
+[![Auftakt Bozen](http://img.youtube.com/vi/UyABLWjjGXg/0.jpg)](http://www.youtube.com/watch?v=UyABLWjjGXg)
+
+<https://www.youtube.com/watch?v=UyABLWjjGXg>
 
 Die erste Etappe des PizzaGiro in Bozen. Nachdem die Bozner Zielpizzeria [Muflone Rosa](https://plus.google.com/101417088472218693904/about?gl=at&hl=en) keinen Tisch mehr anbieten konnte - offenbar wurde sie gewarnt -, setzte ich auf eine Kalibrierungspizza. Im [nussbaumer](http://www.vinum.it/Gastronomie-Lokale/nussbaumer.html) begrüßte ich Italien mit einer _cru-zola_ (proscuitto crudo + gorgonzola). Der perfekte Einstieg, um den Gaumen hochzufahren und einen ersten Geschmacksanker zu werfen.
 
@@ -68,7 +70,7 @@ Der Endbericht zum PizzaGiro: 12 Pizzen in 11 Tagen. Die perfekte Pizza war nich
 
 Noch abenteurlicher, noch entschlossener führte ich den PizzaGiro bis an den Süden der Toskana und schließlich zurück in den hohen Norden. Die Ereignisse überschlugen sich und Unvorhergesehenes gefährdete den Weg in den Pizza Olymp. Doch der Reihe nach:
 
-In Anschluss an [den Auftakt](http://digit.alitility.com/gastronomicalitility/pizzagiro-auftakt-in-bozen/ "#PizzaGiro -- Auftakt in Bozen") und [der Fortsetzung](http://digit.alitility.com/gastronomicalitility/pizzagiro-bring-it-on/ "#PizzaGiro -- Bring it on") ging es nach Barberino - so lange wie es braucht den Namen auszusprechen, so lange dauert auch die Durchfahrt. Noch nie war der Schmerz über das Fehlen einer Atmosphäre-Bewertung größer als im [L'Archibugio S.N.C.](https://plus.google.com/116010301172668321918/about?gl=at&hl=en) - ein sagenhafter Blick über die Toskana auf der Terrasse. Leider hatte ich den Eindruck, dass sich die Pizza hinter dieser Szenarie verstecken will. Gewissenhaft zubereitet, doch der Teig spröde und leblos. Hier muss mehr möglich sein! Auch eine zweite unverzügliche Kostprobe, dieses Mal eher "extravaganza" mit Pecorino, bestätigte meinem Gewissen nur, was mein Gaumen längst erkannt hatte: Overall-Geilheit 3.
+In Anschluss an den Auftakt und der Fortsetzung ging es nach Barberino - so lange wie es braucht den Namen auszusprechen, so lange dauert auch die Durchfahrt. Noch nie war der Schmerz über das Fehlen einer Atmosphäre-Bewertung größer als im [L'Archibugio S.N.C.](https://plus.google.com/116010301172668321918/about?gl=at&hl=en) - ein sagenhafter Blick über die Toskana auf der Terrasse. Leider hatte ich den Eindruck, dass sich die Pizza hinter dieser Szenarie verstecken will. Gewissenhaft zubereitet, doch der Teig spröde und leblos. Hier muss mehr möglich sein! Auch eine zweite unverzügliche Kostprobe, dieses Mal eher "extravaganza" mit Pecorino, bestätigte meinem Gewissen nur, was mein Gaumen längst erkannt hatte: Overall-Geilheit 3.
 
 ![](images/IMG_20140604_195520-150x150.jpg)
 
